@@ -1,19 +1,8 @@
-# Nevon
-roblox executor should be working
+#solara
+works
+ NOT MINE
 
-If not contact me on discord it is: ebk_shiestyyy
+ NOT MINE
 
-Keyless
-
-Should work for every script
-
-something happends it dont work dont freak out
-DM ME ON DISCORD ITS A ISSUE
-
-any problems please dm me on discord
-
-SAFE 
-
-75% Unc
-
-HAVE FUN
+ THIS ISNT MINE SO IM NOT RESPONSIBLE FOR ANY BANS
+ 

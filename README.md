@@ -1,8 +1,1 @@
-#solara
-works
- NOT MINE
-
- NOT MINE
-
- THIS ISNT MINE SO IM NOT RESPONSIBLE FOR ANY BANS
- 
+Works
